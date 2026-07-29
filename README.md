@@ -1,2 +1,2 @@
 # THE-ZOOBIA-ATELIER
-Elegant Fashion Made For You 💕
+Elegant Fashion Made For You 💕.
